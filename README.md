@@ -1,4 +1,4 @@
-Gabriel Colón | 631-559-9062 | Farmingville, NY 11738 | GcolonX@gmail.com
+Gabriel Colón 
 LinkedIn: https://www.linkedin.com/in/gabriel-col%C3%B3n-08abb5244/
 GitHub: https://github.com/gcolonx-rgb
 
